@@ -1,1 +1,3 @@
 Fix3 will be the future.....
+It will get 151$/unit
+speculator sai`s it will get 300$
